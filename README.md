@@ -15,7 +15,7 @@ Here are some ideas to get you started:
   I am John Dexter Satsatin, you can call me JD if were close personally. I graduated at Polytechnic University of the Philippines Biñan Campus with a BACHELOR'S
   DEGREE IN INFORMATION TECHNOLOGY and I really likes to enhance my skills further by watching different youtube channels related to IT.
   
-  - Also im into Game Dev because I'm interested how and whats behind the development of the gam.. :mage:
+  - Also im into Game Dev because I'm interested how and whats behind the development of the game. :mage:
   - I don't talk a lot when im not with my close friends. I don't know why i am like this maybe maturity kicks in. :monkey_face:
 ### Hobbies:
   - Watching movies :ticket:
