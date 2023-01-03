@@ -1,7 +1,7 @@
 ### Hi there 👋
 
 <!--
-**GeraldOrzal/GeraldOrzal** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+**johndexters1100/johndexters1100** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
 
